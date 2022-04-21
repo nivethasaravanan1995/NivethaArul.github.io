@@ -1,3 +1,3 @@
-# Nivetha Arulraj profile
+# Nivetha Saravanan profile
 
 `nivethaarul.github.io`
